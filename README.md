@@ -30,4 +30,4 @@ Formada em Bacharelado em Estatística pela FCT - UNESP, Câmpus de Presidente P
 Durante a graduação, por seis meses, participei da Empresa Júnior da Estatística - EJEST e desenvolvi um projeto como membro da Diretoria de Ensino da Liga Acadêmica Health Tech - LAHT. Também, me envolvi em pesquisas, que levou a Apresentação no Congresso de Iniciação Científica e fui Monitora de Disciplinas, com o intuito de auxiliar o professor responsável, bem como, ser suporte para os alunos mediante resolução de exercícios e dúvidas teóricas. 
 Todas as atividades foram realizadas para agregar meu conhecimento meio aos estudos e adquirir experiência profissional, perante problemas reais.
 
-----------------------------
+-----------------------------
